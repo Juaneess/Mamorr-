@@ -1,2 +1,0 @@
-# Mamorr-
-mi mujer hermosa 💖 
